@@ -1,2 +1,2 @@
 # Policy
-[Policy](https://danaabdulmuttalebahmed.github.io/policy/privacy-policy.html)
+[Policy](https://danaabdulmuttalebahmed.github.io/world-radio/privacy-policy.html)
